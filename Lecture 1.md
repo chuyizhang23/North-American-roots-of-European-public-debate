@@ -1,1 +1,1 @@
-# Lecture 1
+# Lecture 1 - Do we need "rights"?
